@@ -2,4 +2,4 @@
 - 👀 I’m interested in Games , Anime , Programming
 - 🌱 I’m currently learning JS and C++
 - 💞️ I’m not looking to collaborate for now
-- 📫 You can always find me in discord. add my id : Ali-ZooM#0913
+- 📫 You can always find me in discord. add my id : Ali-ZooM#8527

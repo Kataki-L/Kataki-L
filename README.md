@@ -1,3 +1,3 @@
-- 👋 Hi, I’m Ali Esmaeili from iran,isfahan. Known As @Kataki-L.
+- 👋 Hi, I’m Ali Esmaeili from iran,isfahan. Known As @Kataki.
 - 🌱 I’m currently learning JS and C++
 - 📫 Discord ID : Ali-ZooM#8527
